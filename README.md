@@ -7,3 +7,6 @@ True love doesn't pull you away from your Creator; it gently guides you closer t
 
 Day 3: Patience in Love
 What is written for your heart will always find its way to you, no matter the distance. Trust Allah’s timing, for He prepares the best for those who wait patiently.
+
+Day 4: Soulmates in Faith
+Allah places love and mercy between two hearts so they may find tranquility in each other. A righteous companion is a quiet blessing in a chaotic world.
