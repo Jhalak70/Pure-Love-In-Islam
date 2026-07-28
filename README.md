@@ -10,3 +10,6 @@ What is written for your heart will always find its way to you, no matter the di
 
 Day 4: Soulmates in Faith
 Allah places love and mercy between two hearts so they may find tranquility in each other. A righteous companion is a quiet blessing in a chaotic world.
+
+Day 5: Kindness & Peace 🌸
+"Real love brings tranquility to your heart through Faith.
