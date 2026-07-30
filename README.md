@@ -13,3 +13,6 @@ Allah places love and mercy between two hearts so they may find tranquility in e
 
 Day 5: Kindness & Peace 🌸
 "Real love brings tranquility to your heart through Faith.
+
+Day 6: Complete Faith 📖
+"Trust Allah’s timing; He never creates a delay without a purpose.
