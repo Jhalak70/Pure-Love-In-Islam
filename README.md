@@ -16,3 +16,6 @@ Day 5: Kindness & Peace 🌸
 
 Day 6: Complete Faith 📖
 "Trust Allah’s timing; He never creates a delay without a purpose.
+
+Day 7: Dua & Miracles 🌌
+"Never underestimate the power of a sincere Dua made in silence."
