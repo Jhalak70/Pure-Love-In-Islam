@@ -19,3 +19,7 @@ Day 6: Complete Faith 📖
 
 Day 7: Dua & Miracles 🌌
 "Never underestimate the power of a sincere Dua made in silence."
+
+Day 8: Inner Peace 🕊️
+"Remember Allah, and your heart will find the peace it craves."
+
