@@ -23,3 +23,6 @@ Day 7: Dua & Miracles 🌌
 Day 8: Inner Peace 🕊️
 "Remember Allah, and your heart will find the peace it craves."
 
+Day 9: Gratitude & Blessing 🌿
+"Alhamdulillah for every hardship that brought me closer to Allah."
+
