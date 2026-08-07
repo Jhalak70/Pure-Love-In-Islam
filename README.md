@@ -26,3 +26,6 @@ Day 8: Inner Peace 🕊️
 Day 9: Gratitude & Blessing 🌿
 "Alhamdulillah for every hardship that brought me closer to Allah."
 
+Day 10: The Best Planner 💫
+"When things don't go your way, remember Allah has a better plan for you."
+
