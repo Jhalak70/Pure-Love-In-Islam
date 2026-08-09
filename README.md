@@ -29,3 +29,6 @@ Day 9: Gratitude & Blessing 🌿
 Day 10: The Best Planner 💫
 "When things don't go your way, remember Allah has a better plan for you."
 
+Day 11: Hope & Mercy ✨
+"No matter how heavy your heart is, Allah's mercy is always greater."
+
