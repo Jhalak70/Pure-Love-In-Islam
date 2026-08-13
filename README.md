@@ -32,3 +32,5 @@ Day 10: The Best Planner 💫
 Day 11: Hope & Mercy ✨
 "No matter how heavy your heart is, Allah's mercy is always greater."
 
+Day 12: Silent Strength 🌧️
+"Sabr is not just waiting, it is keeping a good attitude while waiting."
