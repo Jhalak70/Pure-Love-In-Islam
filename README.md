@@ -34,3 +34,6 @@ Day 11: Hope & Mercy ✨
 
 Day 12: Silent Strength 🌧️
 "Sabr is not just waiting, it is keeping a good attitude while waiting."
+
+Day 13: Light of Guidance 💡
+"Let the Quran be the light that guides your steps through darkness."
