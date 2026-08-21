@@ -37,3 +37,6 @@ Day 12: Silent Strength 🌧️
 
 Day 13: Light of Guidance 💡
 "Let the Quran be the light that guides your steps through darkness."
+
+Day 14: Pure Hearts 🤍
+"A heart attached to Allah will never remain broken for long."
